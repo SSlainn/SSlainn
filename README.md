@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SSlainn
+- 👀 I’m interested in video games mod
+- 🌱 I’m currently learning minecraft modding
+- 💞️ I’m looking to collaborate on any project i can be useful
+- 📫 How to reach me Slainn#9999 on discord
